@@ -1,0 +1,2 @@
+# sikuyakufa
+https://www.google.com/search?q=deathdate%2Ccom&amp;oq=death&amp;gs_lcrp=EgZjaHJvbWUqCAgAEEUYJxg7MggIABBFGCcYOzIMCAEQRRg5GLEDGIAEMg0IAhAuGNQCGLEDGIAEMgwIAxAjGCcYgAQYigUyDAgEEAAYQxiABBiKBTIGCAUQRRg8MgYIBhBFGDwyBggHEEUYPNIBCDQwNTdqMGo3qAIAsAIA&amp;sourceid=chrome&amp;ie=UTF-8
